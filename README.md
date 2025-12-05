@@ -200,5 +200,3 @@ Designed & built with passion for great food and great digital experiences.
 
 ---
 
-Just ask!
-
